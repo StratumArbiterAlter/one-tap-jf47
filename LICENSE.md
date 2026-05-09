@@ -1,4 +1,4 @@
-
+stealth Scripts for one tap is the best one tap Script, featuring silent aim and infinite resources. Safe and powerful for all your needs.
 
 
 
